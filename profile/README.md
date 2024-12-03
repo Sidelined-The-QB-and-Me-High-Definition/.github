@@ -1,7 +1,7 @@
 # 𝚆𝙰𝚃𝙲𝙷 Sidelined: The QB & Me(𝟸𝟶𝟸𝟺) 𝙵𝚞𝚕𝚕𝙼𝚘𝚟𝚒𝚎 𝙵𝚛𝚎𝚎 𝙾𝚗𝚕𝚒𝚗𝚎 𝙾𝚗 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐
 
 19 Sec ago - 𝚂𝚝𝚒𝚕𝚕 𝙽𝚘𝚠 Here very good option 𝚏𝚘𝚛 𝙵𝚛𝚎𝚎 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍𝚒𝚗𝚐 𝚘𝚛 𝚆𝚊𝚝𝚌𝚑𝚒𝚗𝚐 or 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚝𝚑𝚎 kanguva 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎 𝙾𝚗𝚕𝚒𝚗𝚎 𝚏𝚘𝚛 𝙵𝚛𝚎𝚎 in 𝚘𝚗 F𝚒𝚕𝚖𝚢𝚣𝚒𝚕𝚕𝚊, m𝚘𝚟𝚒𝚎𝚜d𝚊, 𝟷𝟸𝟹𝙼𝚘𝚟𝚒𝚎𝚜, 𝚖𝚙𝟺𝚖𝚘𝚟𝚒𝚎𝚣, 𝚏𝚒𝚕𝚖𝚢𝚠𝚊𝚙, 𝚔𝚞𝚝𝚝𝚢𝚖𝚘𝚟𝚒𝚎𝚜 & 𝚁𝚎𝚍𝚍𝙸𝚝, 𝙵𝚒𝚕𝙼𝚢𝚣𝚒𝚕𝚕𝚊, 𝚅𝚎𝚐𝚊𝚖𝚘𝚟𝚒𝚎𝚜 𝚒𝚗𝚌𝚕𝚞𝚍𝚒𝚗𝚐.
-
+Sidelined: The QB and Me was produced by Wattpad WEBTOON Studios. It is inspired by Tay Marley's hit Wattpad novel, "The QB Bad Boy and Me," which has over 31.2 million reads on the platform.
 
 <a href="https://sixmedia.online/en/movie/957119/sidelined-the-qb-me.git">➤ ►🌍📱👉 Sidelined: The QB & Me 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎</a>
 
@@ -22,7 +22,11 @@ Sidelined: The QB & Me is a 2024 American sex comedy drama film written, directe
 𝚆𝚘𝚗𝚍𝚎𝚛𝚒𝚗𝚐 𝚑𝚘𝚠 𝚝𝚘 𝚆𝚊𝚝𝚌𝚑 Sidelined: The QB & Me 𝙾𝚗𝚕𝚒𝚗𝚎? 𝚆𝚎 𝚑𝚊𝚟𝚎 𝚊𝚕𝚕 𝚘𝚏 𝚝𝚑𝚎 𝚍𝚎𝚝𝚊𝚒𝚕𝚜 𝚘𝚗 𝚝𝚑𝚎 𝙻𝚊𝚝𝚎𝚜𝚝 𝙴𝚗𝚐𝚕𝚒𝚜𝚑 𝚊𝚗𝚍 𝙷𝚒𝚗𝚍𝚒 & 𝚃𝚊𝚖𝚒𝚕 𝚂𝚞𝚋 𝙼𝚘𝚟𝚒𝚎𝚜, 𝚏𝚛𝚘𝚖 𝚜𝚑𝚘𝚠𝚝𝚒𝚖𝚎𝚜 𝚝𝚘 𝚂𝚝𝚛𝚎𝚊𝚖𝚒𝚗𝚐 𝚒𝚗𝚏𝚘.
 
  
+the fact Drayton gave her a ride so she wouldn't walk around alone and drunk because of his trauma of what happened to his twin sister Abby...he wanted to protect her because he couldn't save his sister I'm crying 😞 (presets in my bio) cc cosmoqlia @noah beck 
 
+I love that this movie was just cute teenage love
+
+@Siena Agudong @Wattpad #viral #fyp #noahbeck #sienaagudong #enemiestolovers #wattpad #sidelined #dallasbryan #draytonlahey #sidelinedtheqbandme #trending #foryoupagе
  
 
 Sidelined: The QB & Me 𝚛𝚎𝚕𝚎𝚊𝚜𝚎 𝚍𝚊𝚝𝚎
